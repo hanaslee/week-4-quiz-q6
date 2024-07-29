@@ -1,1 +1,1 @@
-# week-4-quiz-q6
+![alt text](Hana-Lee-Week-4-Quiz-Chart.png)
